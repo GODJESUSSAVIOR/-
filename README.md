@@ -14,7 +14,7 @@ https://en.m.wikipedia.org/wiki/Member_states_of_the_Shanghai_Cooperation_Organi
 
 someone tele control all phones shutdown restart many times❗who❓maybe : satans❓or hackers❓or hackers hired by satans❓or c❓or x❓or others❓
 
-search informations from internet found many informations from many people in the world told do not buy phones made by c and do not use phones made by c because c installed " spy applications hidden in phones made by c " and c planted " spy chips hidden in phones made by c " so that c can spy tele monitors activities all phones made by c in the world and c can spy tele steals data all phones made by c in the world and c can spy tele controls all phones made by c in the world so that c can tele controls all humans so that c can tele controls all nations so that c can tele controls the world
+search informations from internet found many informations from many people in the world told do not buy phones made by c and do not use phones made by c because c installed " spy applications hidden in phones made by c " and c planted " spy chips hidden in phones made by c " so that c can spy tele monitors activities all phones made by c in the world so that c can spy tele steals data all phones made by c in the world so that c can spy tele controls all phones made by c in the world so that c can tele controls all humans so that c can tele controls all nations so that c can tele controls the world
 
 https://theguardian.com/technology/2019/oct/26/china-technology-social-management-internet-social-credit-system
 https://reuters.com/business/media-telecom/lithuania-says-throw-away-chinese-phones-due-censorship-concerns-2021-09-21
